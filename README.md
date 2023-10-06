@@ -1,0 +1,1 @@
+# STKI_Ganjil_2023
